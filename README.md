@@ -1,4 +1,4 @@
-# Hi there, I'm Jesse - aka [codeSTACKr][youtube] 👋 
+# Hi there, I'm TAMIRAA - aka [codeSTACKr][youtube] 👋 
 
 [![YouTube Channel Subscribers](https://..................)][youtube]
 [![Website](https://..........................)](https://codestackr.com)
